@@ -1,1 +1,1 @@
-![](https://komarev.com/ghpvc/?username=windlesstorm&color=B1D5E7&style=for-the-badge&label=PROFILE+VIEWS)
+![](https://komarev.com/ghpvc/?username=windlesstorm&color=94B9CC&style=for-the-badge&label=PROFILE+VIEWS)
